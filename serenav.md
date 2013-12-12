@@ -1,1 +1,3 @@
 Music is love in search of a word - Sidney Lanier
+
+Submitted by Serena Vandersteen
